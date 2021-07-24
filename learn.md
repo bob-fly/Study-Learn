@@ -1,6 +1,6 @@
 ### 1、学习的结构化思维
 
-https://mp.weixin.qq.com/s/4gKQMqZtetDIfjw5fZv_aw
+文章引用自：https://mp.weixin.qq.com/s/4gKQMqZtetDIfjw5fZv_aw
 
 #### 结构化思维
 
